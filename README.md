@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Addikorn45
 - 👀 I’m interested in Linux, Virtualisation, Gaming.
 - 🌱 I’m currently learning python, Linux systems and making stuff.
-- 💞️ I’m looking to collaborate on ... a loving relationship... im so lonley
+- 💞️ I’m looking to collaborate on ... a loving relationship...oh god im so lonley
 - 📫 How to reach me: my discord: /home/Addikorn45#8456
 
 <!---
